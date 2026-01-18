@@ -1,1 +1,1 @@
-# IvanPleshakov_AnelIsmagulova_2405045027_DGD203GameProgramming1-
+# IvanPleshakov_2405045027_AnelIsmagulova_2405045028_DGD203GameProgramming1-
